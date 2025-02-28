@@ -6,3 +6,7 @@ Asado de Tira: Costillas de res cocidas lentamente a la parrilla, con un toque d
 Cordero al Horno: Pierna de cordero marinada con ajo, romero y vino tinto, cocida a fuego lento hasta que quede tierna y jugosa.
 Pollo a la Parrilla: Pollo marinado en una mezcla de hierbas, limón y aceite de oliva, luego asado a la parrilla para conseguir una piel crujiente y carne jugosa.
 
+Bebidas Recomendadas
+Vino tinto Malbec o Cabernet Sauvignon.
+Cerveza artesanal.
+Cócteles a base de whisky, como un Old Fashioned.
