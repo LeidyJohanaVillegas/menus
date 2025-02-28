@@ -13,3 +13,8 @@ La cocina francesa es famosa por su sofisticación y sus técnicas culinarias re
 - Champán para ocasiones especiales.
 
 - Café expreso.
+##Consejos:
+- El Coq au Vin requiere cocción lenta para que los sabores se desarrollen completamente, así que no apresures el proceso.
+
+- La Ratatouille se disfruta más cuando las verduras están bien cocidas y los sabores de las hierbas se integran perfectamente.
+> - El Bouillabaisse debe servirse caliente con una cucharada de rouille (una salsa de ajo y azafrán) para acompañar.
