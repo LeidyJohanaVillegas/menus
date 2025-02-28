@@ -6,3 +6,9 @@ La cocina china es famosa por su diversidad y su equilibrio de sabores, con plat
 - Mapo Tofu: Tofu suave en una salsa picante de carne molida, pasta de chile y soja, originaria de Sichuan.
 
 Dim Sum: Pequeñas porciones de diferentes bocados, como dumplings, baos y rollos, servidos al vapor o fritos.
+##Bebidas recomendadas:
+Té verde chino.
+
+- Vino de arroz (Shaoxing).
+
+- Sopa de huevo (comúnmente servida como aperitivo en algunos menús chinos).
