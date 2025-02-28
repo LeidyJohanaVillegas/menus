@@ -7,3 +7,9 @@ La cocina mediterránea es conocida por su dieta equilibrada, rica en ingredient
 - Moussaka: Cazuela de berenjenas, carne de cordero, tomate y una capa de bechamel.
 
 - Frittata: Tortilla italiana de huevos con verduras, queso y hierbas, perfecta para el desayuno o una comida ligera.
+##Bebidas recomendadas:
+- Vino tinto de la región de la Toscana (Italia).
+
+- Agua con gas con una rodaja de limón.
+
+- Ouzo (licor griego) como digestivo.
