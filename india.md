@@ -7,3 +7,9 @@ La cocina india es conocida por su riqueza en especias y sabores intensos, que v
 - Biryani: Arroz basmati aromatizado con hierbas y especias, cocido con carne de cordero o pollo.
 
 Samosas: Empanadas fritas rellenas de patatas, guisantes y especias, servidas como aperitivo.
+##Bebidas recomendadas:
+- Lassi de mango (bebida dulce de yogur y mango).
+
+- Chai masala (té especiado con leche, cardamomo, jengibre y canela).
+
+- Agua de coco (para refrescarse).
