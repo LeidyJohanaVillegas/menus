@@ -13,3 +13,9 @@ La cocina mediterránea es conocida por su dieta equilibrada, rica en ingredient
 - Agua con gas con una rodaja de limón.
 
 - Ouzo (licor griego) como digestivo.
+##Concejos:
+- En la paella, es importante no remover el arroz una vez añadido al caldo, para que se forme una capa crujiente en la base (el socarrat).
+
+- La moussaka sabe aún mejor al día siguiente, cuando los sabores se han asentado.
+
+- La frittata es muy versátil; puedes agregarle cualquier verdura o proteína que tengas a mano.
