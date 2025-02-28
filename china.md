@@ -12,3 +12,9 @@ Té verde chino.
 - Vino de arroz (Shaoxing).
 
 - Sopa de huevo (comúnmente servida como aperitivo en algunos menús chinos).
+##Consejos:
+- El pato Pekín es mejor si se sirve inmediatamente después de ser asado para mantener su piel crujiente.
+
+- El Mapo Tofu es un plato picante, pero si prefieres menos picante, puedes ajustar la cantidad de pasta de chile.
+
+- Asegúrate de que los dim sum se cocinen al vapor adecuadamente para que queden tiernos y jugosos.
