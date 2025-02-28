@@ -7,3 +7,9 @@ La cocina vegetariana destaca por su uso creativo de verduras, legumbres, cereal
 - Falafel: Bolitas fritas de garbanzos, cebolla, ajo y especias, servidas con salsa de yogur y ensalada.
 
 - Curry de Garbanzos: Guiso especiado con garbanzos, tomates, espinacas y leche de coco, acompañado de arroz basmati.
+##Bebidas recomendadas:
+- Zumo fresco de zanahoria y manzana.
+
+- Té helado de hierbas.
+
+- Agua de coco.
