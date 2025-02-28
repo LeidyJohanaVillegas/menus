@@ -11,3 +11,7 @@ Pozole Rojo: Sopa espesa de maíz con carne de cerdo o pollo, acompañada de rá
 - Tequila Reposado.
 - Agua de horchata(bebida a base de arroz, canela y azucar).
 - Margarita de lima.
+##Consejos:
+- Para los tacos, asegúrate de usar tortillas recién hechas para obtener el mejor sabor.
+- El pozole siempre es más sabroso al día siguiente, ya que los sabores se intensifican.
+- No olvides el toque de salsa picante para los platillos que lo permitan, ¡le dará un sabor único!
