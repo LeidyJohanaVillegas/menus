@@ -13,3 +13,9 @@ La cocina vegetariana destaca por su uso creativo de verduras, legumbres, cereal
 - Té helado de hierbas.
 
 - Agua de coco.
+##Consejos:
+- Para una lasaña vegetariana aún más sabrosa, puedes añadir una capa de bechamel ligera entre las verduras y la pasta.
+
+- Los falafel deben ser fritos en aceite caliente para que queden crujientes por fuera y suaves por dentro.
+
+- En el curry de garbanzos, puedes ajustar las especias según tu gusto; si prefieres menos picante, reduce la cantidad de chile.
