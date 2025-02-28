@@ -7,3 +7,7 @@ Tacos al Pastor: Tacos de cerdo marinado con achiote, piña y salsa, servidos en
 Enchiladas Verdes: Tortillas rellenas de pollo bañadas en salsa verde de tomatillo y chile.
 Pozole Rojo: Sopa espesa de maíz con carne de cerdo o pollo, acompañada de rábanos, lechuga, orégano y chile en polvo.
 
+##Bebidas recomendadas:
+- Tequila Reposado.
+- Agua de horchata(bebida a base de arroz, canela y azucar).
+- Margarita de lima.
