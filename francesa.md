@@ -7,3 +7,9 @@ La cocina francesa es famosa por su sofisticación y sus técnicas culinarias re
 - Ratatouille: Estofado de verduras mediterráneas como berenjena, calabacín, pimientos y tomate, con hierbas provenzales.
 
 - Bouillabaisse: Sopa de pescado de la región de Provenza, hecha con mariscos, tomate, ajo y azafrán.
+##Bebidas recomendadas:
+- Vino tinto Bordeaux.
+
+- Champán para ocasiones especiales.
+
+- Café expreso.
