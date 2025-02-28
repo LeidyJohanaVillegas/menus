@@ -13,3 +13,8 @@ Samosas: Empanadas fritas rellenas de patatas, guisantes y especias, servidas co
 - Chai masala (té especiado con leche, cardamomo, jengibre y canela).
 
 - Agua de coco (para refrescarse).
+##Consejos:
+- [200~La clave de los platos indios está en las especias, por lo que es importante tostarlas ligeramente antes de usarlas para sacarles el mejor sabor.
+- El biryani siempre sabe mejor al día siguiente, cuando los sabores se han fusionado completamente.
+
+Si no te gustan los platos muy picantes, puedes reducir la cantidad de chile, pero no te pierdas la complejidad de las especias.
