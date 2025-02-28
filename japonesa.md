@@ -13,3 +13,9 @@ Sake frío o caliente.
 Té verde japonés (Sencha).
 
 Té verde japonés (Sencha).
+##Consejos:
+- Para preparar sushi en casa, utiliza pescado fresco y arroz de sushi, y no olvides el vinagre de arroz para darle ese sabor único.
+
+- El ramen es mejor cuando el caldo ha sido cocinado lentamente, concentrando todos los sabores.
+
+- Acompaña el tempura con una salsa a base de soja y jengibre para balancear los sabores.
